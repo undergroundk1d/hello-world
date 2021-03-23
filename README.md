@@ -1,2 +1,1 @@
-# hello-world
-My first GitHub Pages Respoitory
+# hello-world! Lets dont get bored, jump in and support my crew to the very best of our future!
